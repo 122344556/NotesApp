@@ -5,7 +5,7 @@ Link Aplikasi di google play store:
 
 
 Link Youtube terkait video penjelasan pitchdek :
-
+https://www.youtube.com/watch?v=_0i8ay02vwU&feature=youtu.be
 
 Link Youtube video terkait pendemoan aplikasi:
 https://www.youtube.com/watch?v=qjmTyfyktiE&feature=youtu.be
